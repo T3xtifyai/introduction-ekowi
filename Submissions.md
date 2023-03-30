@@ -5,7 +5,7 @@ This time I will provide the results of my analysis and opinions about AI-based 
 
 [here](https://tome.app/beroba/ai-for-students-monetizing-b2c-strategies-for-the-future-clfrq9z4f0jpz5v42yjfrbixe)
 
-<h3> If the results of my analysis and opinions are very unreasonable or have flaws, then I am open to discussion with you. Because I am still learning here and accept all suggestions and recommendations from anyone. Thank you. Greetings </h3>
+<h3> If the results of my analysis and opinions are very unreasonable or have flaws, then I am open to discussion with you. Because I am still learning here and accept all suggestions and recommendations from anyone. Thank you. Regards </h3>
 
 
 
